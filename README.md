@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Arseniy
+- 👀 I am interested in learning the Python language
+- 💞️ I want to partner with a visionary company 
+- 📫 My instagram, where you can contact me @Dy_Arseniy
